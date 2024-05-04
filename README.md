@@ -1,9 +1,4 @@
 # funciosdsd
 
-este arquivo só serve para teste kkkkkk
-eee
-
-
-vbbg
-
+foi tudo apagado!
 
